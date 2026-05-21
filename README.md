@@ -3,4 +3,4 @@
 # Fun Facts???
 
 
-# UA campus is too big for me to explore.
+#whattt is thiss
